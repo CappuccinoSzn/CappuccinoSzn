@@ -4,10 +4,6 @@
 
 🚀 Proficient in Adobe Creative Suite, Figma, HTML, CSS, and JavaScript, always staying ahead of design trends. 💥
 
-📞 Let's Connect!!! 0795367770 >>> Open to projects, partnerships, and creative discussions. ☺️
+📞 Let's Connect!!! https://wa.me/254795367770 >>> Open to projects, partnerships, and creative discussions. ☺️
 
-🔥 If creativity had a snooze button, I’d probably hit it twice! 😆
-<!---
-CappuccinoSzn/CappuccinoSzn is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-You can click the Preview link to take a look at your changes.
---->
+🔥 If creativity had a snooze button, I’d probably hit it to infinity! 😆
